@@ -1,6 +1,1 @@
-#SARATH G
-
-#TAKEOVER SUCCESSUL
-
-
-#CPENT
+# Inn vallom seriyakuo ?
